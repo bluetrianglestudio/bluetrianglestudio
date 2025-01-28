@@ -1,4 +1,12 @@
-## Hi there 👋
+jurriaan kruithof
+
+sound-design
+
+0611517926
+
+jur@bluetriangle.studio
+
+portfolio soon
 
 <!--
 **bluetrianglestudio/bluetrianglestudio** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
