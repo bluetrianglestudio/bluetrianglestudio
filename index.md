@@ -6,4 +6,5 @@ sound-design
 
 jur@bluetriangle.studio
 
-portfolio soon
+
+
