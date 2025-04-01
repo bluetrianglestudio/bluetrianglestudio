@@ -1,3 +1,5 @@
+🦋
+
 jurriaan kruithof
 
 sound-design
@@ -7,4 +9,17 @@ sound-design
 jur@bluetriangle.studio
 
 
+🦋
+     
 
+lets talk about it 
+:) 
+
+
+
+https://www.filmfestival.nl/persoon/jurriaan-kruithof
+
+https://www.imdb.com/name/nm13412268/
+
+
+🦋
